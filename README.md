@@ -14,7 +14,7 @@ Hi, I'm **Ewan Isaacs**, and I live right here in University Glen. I started **U
 - **First week is **50% off** when you email me **"Garbage Bins"** in the headline.
 
 ## How it Works 
-**You will email me your adress, the money in venmo or you can pay me in cash when I get there, the code garbage bins in the headline of you email to get 50% off if you are new**. Then I will come to youre house on Monday from **8am to 7pm** to take your garbage cans out then from **9:30am to 8pm** on Tuesday to put them back in your patio/garbage bin area. If I am univalible **(For instance on vacation)** I will refund you with venmo and you will take your cans out. The monthly fee is **$12 a month** or **$10 a month for 50 and older**.   
+**You will email me your adress, the money in venmo or you can pay me in cash when I get there. Use the code "garbage bins" in the headline of your email to get 50% off if you are new**. Then I will come to youre house on Monday from **8am to 7pm** to take your garbage cans out then from **9:30am to 8pm** on Tuesday to put them back in your patio/garbage bin area. If I am univalible **(For instance on vacation)** I will refund you with venmo and you will take your cans out. The monthly fee is **$12 a month** or **$10 a month for 50 and older**.   
 
 
 ## Contact Us
