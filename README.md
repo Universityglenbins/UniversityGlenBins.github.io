@@ -8,7 +8,7 @@ Hi, I'm **Ewan Isaacs**, and I'm a 13-year-old living right here in University G
 ## Service Details
 - **Cost**: Only **$4 per week for trash, recycling, and green waste**. And only **$3 per week for seniors for trash, recycling, and green waste**.
 - **My Mission**: To help save you **time** and **pain** for an **affordable price**.
-- **Weather**: I will work **rain or shine**
+- **Weather**: I will work **rain or shine**.
 - **Payment method**: I accept payment in the form of **cash and zelle**.
 - **First week is **50% off** when you email me **"Garbage Bins"** in the headline of your email!
 
