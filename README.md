@@ -1,7 +1,7 @@
 # University Glen Bins: Trash Bin Services
 
 ## About Us
-Hi, I'm **Ewan Isaacs**, and I'm a 13 year old living right here in University Glen. I started **University Glen Bins** because I understand the hassle of managing your trash, recycling, and green waste bins. That's why I offer a convenient service to take your bins out on Mondays and bring them back to your patios on Tuesday. Say goodbye to those early morning curb runs!
+Hi, I'm **Ewan Isaacs**, and I'm a 13-year-old living right here in University Glen. I started **University Glen Bins** because I understand the hassle of managing your trash, recycling, and green waste bins. That's why I offer a convenient service to take your full bins into your alley and return them to your patios once they've been emptied. Say goodbye to those early morning curb runs!
 
 ![Bins logo](bins.jpg)
 
